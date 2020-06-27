@@ -7,3 +7,7 @@ Hulk [hʌlk] (engl. Koloss, Klotz) ist die Titelfigur aus den gleichnamigen Marv
 * unglaubliche Stärke,
 * fast unverwundbar und Regenerationsfähigkeit,
 * rasende Wut.
+
+Wie Hulk sagt:
+
+> Hulk ist wütend.
