@@ -11,3 +11,5 @@ Hulk [hʌlk] (engl. Koloss, Klotz) ist die Titelfigur aus den gleichnamigen Marv
 Wie Hulk sagt:
 
 > Hulk ist wütend.
+
+<img src="https://th.bing.com/th/id/OIP.qz7u3ewsnUkWaOMdPFZfsQHaE8?w=261&h=180&c=7&o=5&dpr=1.2&pid=1.7"/>
